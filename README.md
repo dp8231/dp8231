@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @dp8231 Never code
-- 👀 I’m interested in ...creating ai influencers {exclusive xxx content}
+- 👋 Hi, I’m @dp8231 Never codeD
+- 👀 I’m interested in ...creating ai influencers,Computer vision (CV),Natural language processing (NLP),Generative adversarial networks (GANs),Reinforcement learning (RL)
 - 🌱 I'm broke lost everything
 - 💞️ Looking for information about Ai projects that can be profitable
 - 📫 How to reach me ...www.dpat8231@gmail.com
